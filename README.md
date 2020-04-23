@@ -1,1 +1,1 @@
-# nary20ville.github.io
+# n-ary20village.github.io
